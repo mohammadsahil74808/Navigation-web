@@ -1,3 +1,3 @@
 There is a application of campus navigator app 
 
-in relese there are aoolication and code also..
+in relese there are application and code also..
